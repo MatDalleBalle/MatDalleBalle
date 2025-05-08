@@ -1,7 +1,7 @@
 ### Hi there 👋
 ### My name is Mathias
 
-### Currently studying hard in school with 1.5 year left 
+### Currently studying hard in school with 0.5 year left 
 
 
 <!--
